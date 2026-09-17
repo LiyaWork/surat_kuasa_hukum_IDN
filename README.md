@@ -1,0 +1,1 @@
+# surat_kuasa_hukum_IDN
